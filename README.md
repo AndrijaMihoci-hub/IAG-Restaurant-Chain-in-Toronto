@@ -1,4 +1,4 @@
-# IAG-Restaurant-Chain-in-Toronto
+# Italian & Asian Gourmet (IAG) Restaurant Chain in Toronto
 
 Executive Summary
 
